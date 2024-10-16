@@ -1,1 +1,1 @@
-# Giga_SVVT_Project Avdo Vladavić & Amir Ljubijankić
+# Giga SVVT Project Avdo Vladavić & Amir Ljubijankić
